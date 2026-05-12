@@ -1,4 +1,4 @@
-# 
+# Get the ultimate meme coin sniper bot with professional meme coin sniper bot | MEV-detection + auto-buy. Featuring MEV-detection and auto-buy, it's the best choice for automated
 
 
 
